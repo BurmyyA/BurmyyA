@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BurmyyA
+- 👋 Hi, I’m @Burmyy.
 - 👀 I’m interested in ... Rocket League
 - 🌱 I’m currently learning ... How to play the piano
 - 💞️ I’m looking to collaborate on ... A big coding project
